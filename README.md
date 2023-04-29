@@ -1,2 +1,10 @@
-- 👋 Hi, I’m @bpfox77
-I'm interested in connecting spirtuality and science through code to acheive a direct connection between what Einstein called Transscendent Order and the Vendanta experience of Brahman - The Ultimate Reality. 
+Brahmavidya
+The supreme science
+Seeking knowledge of the underlying reality
+
+Everything already exists. We just need to discover it
+
+The Perennial Philosophy 
+There is an infinite changeless reality beneath the world of change
+The same reality lies at the core of every human personality
+The purpose of life is to discover this reality experientially
